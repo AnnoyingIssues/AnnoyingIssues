@@ -10,7 +10,7 @@
   
  🌱 I’m want to learn **Java, PHP, C++ and C.** 
 
- 📫 How to reach me: **ethansoulignac@proton.me** 
+ 📫 How to reach me: **annoyingissues@myheberg.fr** 
 
  ⚡ Fun fact: **https://bit.ly/3Y50bgD** 
 <br><br>
